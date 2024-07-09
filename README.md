@@ -1,4 +1,4 @@
-# ABHI
+# ARJUN
 Welcome
 --------|
 ![](https://media.tenor.com/iVCiM9W7cvYAAAAd/welcome.gif)
@@ -17,13 +17,13 @@ THIS REPOSITORY MADE BY ARJUN__SINGH
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ribeye&size=50&pause=1000&color=F710B1&center=true&width=910&height=100&lines=I'M+ABHI-YADAV;Jay shri ram__💞;Coded+By+ABHI-YADAV" alt="Typing SVG" /></a>
   
 
-- 👨‍💻 All friends  my youtube channle : - [https://www.youtube.com/@fb_TRICKER](https://www.youtube.com/@fb_TRICKER)
+- 👨‍💻 All friends  my youtube channle : - [](https://youtube.com/@f9t3b9j?si=KAipS971egtFr_kP)
 
 - ⚡ Fun fact **I am funny😅**
 
 -  ## Support
 
-SUPPORT GROUP: <a href="https://chat.whatsapp.com/HlSlNQu5DI106VDGUrIu2r"><img alt="WhatsApp" 
+SUPPORT GROUP: <a href="https://chat.whatsapp.com/G8pteQsHfBl1y8WqTM7e1B"><img alt="WhatsApp" 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
